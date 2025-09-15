@@ -45,7 +45,7 @@ I'm **Issa Elsherife**, a motivated Software Engineering student with hands-on e
 ### 📫 How to reach me:
 * **Email:** [issaalsherife@gmail.com](mailto:issaalsherife@gmail.com)
 * **LinkedIn:** (https://www.linkedin.com/in/issa-alsherife-b82a7a384/)
-**ح
+* **phone:**+ 218 92-861-9293
 
 
 ---
